@@ -26,6 +26,8 @@ please don't spread gossip about me or take gossip you hear about me as fact, be
 
 if you hear something about me, please contact me and i can explain my side of things too. but honestly most things are just related to interpersonal stuff that should be kept private in the first place, or massive misunderstandings/misinterpretations that could be cleared up with mild communication lol
 
+people on ponytown gossip because they're drama hungry and tend to make things seem like bigger deals than they actually are
+
 ---
 
 i am blunt and confrontational. if you do or say something that makes me uncomfortable or rubs me the wrong way i will speak up and be direct with you about it. 
