@@ -4,7 +4,7 @@
 
 read my links to get to know more about me! >:3 
 
-i am a disabled, work remotely at home and i have 2 monitors. i usually keep ponytown open on my 2nd monitor and tab in to people watch
+i am disabled, work remotely at home, and i have 2 monitors. i usually keep ponytown open on my 2nd monitor and tab in to people watch
 
 i'm very friendly and excitable and social and i LOVE talking to new people, but i'm usually offtab. whispers are the best way to reach me since i'm usually looking at the personal chat tab anyway!!
 
