@@ -1,6 +1,6 @@
 ## ☼ SOLIPSES ☾
 
-24, it/she/ask/any
+25, it/she/ask/any
 
 read my links to get to know more about me! >:3 
 
