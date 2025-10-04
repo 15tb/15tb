@@ -1,8 +1,10 @@
 ## ☼ SOLIPSES ☾
 
-25, it/she/ask/any
+sol/soleil, 25, it/she/ask/any
 
 i love my wife
+
+if you want to add me on ponytown and we've talked before or have mutual friends, please ask me! i have frqs off
 
 ## NOTICE
 
