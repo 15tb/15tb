@@ -1,6 +1,6 @@
 ## ☼ SOLIPSES ☾
 
-sol/soleil, 25, it/she/ask/any
+sol/soleil, 26, it/she/ask/any
 
 i love my wife
 
