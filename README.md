@@ -6,6 +6,8 @@ i love my wife
 
 if you want to add me on ponytown and we've talked before or have mutual friends, please ask me! i have frqs off
 
+わたしは日本語べんきょうしています! (i'm not good at it yet though)
+
 ## NOTICE
 
 my skins are **not** yours to copy, colorpick, or take inspiration from.
